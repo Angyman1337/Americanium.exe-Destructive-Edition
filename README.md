@@ -6,7 +6,7 @@ I have gotten permission to make this github.
 
 One last thing... GOD BLESS AMERICA!!!!!
 
-
+![us-flag-waving-4233429847](https://github.com/user-attachments/assets/2e9b95a6-a6b2-4e7e-bbe3-81d73727f024)
 
 
 also, it's pronounced uh-MER-i-KIH-nee-um/americanium (based off of americium)
