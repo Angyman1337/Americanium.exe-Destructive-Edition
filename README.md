@@ -12,4 +12,4 @@ One last thing... GOD BLESS AMERICA!!!!!
 also, it's pronounced uh-MER-i-KIH-nee-um/americanium (based off of americium)
 
 
-safe verision-https://github.com/scriptifid/Americium.exe
+safe version-https://github.com/scriptifid/Americium.exe
