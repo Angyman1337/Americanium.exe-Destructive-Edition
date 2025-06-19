@@ -12,3 +12,6 @@ One last thing... GOD BLESS AMERICA!!!!!
 also, its amer-cuh-ium/americanium
 
 
+
+
+safe verision-https://github.com/scriptifid/Americium.exe
