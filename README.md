@@ -7,3 +7,8 @@ I have gotten permission to make this github.
 One last thing... GOD BLESS AMERICA!!!!!
 
 
+
+
+also, its amer-cuh-ium/americanium
+
+
