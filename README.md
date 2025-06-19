@@ -3,6 +3,7 @@ This is a different verision of the Americium.exe which was made by scriptifid. 
 THIS WILL BREAK YOUR PC.
 Only run this in a virtual machine.
 I have gotten permission to make this github.
-One last thing...GOD BLESS AMERICA!!!!!
+
+One last thing... GOD BLESS AMERICA!!!!!
 
 
