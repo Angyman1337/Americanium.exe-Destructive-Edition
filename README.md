@@ -1,4 +1,10 @@
 # Americanium.exe-Destructive-Edition
+
+Ah...americanium. The most freedom filled malware ever! But, he doesnt want to give you freedom. HE. wants your OIL.
+
+
+
+
 This is a different verision of the Americanium.exe which was made by scriptifid. Which, the destructive one is also made by scriptifid.
 THIS WILL BREAK YOUR PC.
 Only run this in a virtual machine.
